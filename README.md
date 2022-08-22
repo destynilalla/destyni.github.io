@@ -1,2 +1,2 @@
-# destyni.github.io
-hello my name is destyni lalla :)
+# Destyni Lalla
+# hello my name is destyni lalla :)
